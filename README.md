@@ -1,0 +1,2 @@
+# Virat-Kohli-s-Centuries-Visualization
+Virat Kohli is an Indian international cricketer and former captain of the India national cricket team. He is often considered one of the best batsmen of his era and is widely regarded as one of the greatest all-format batsmen of all time. He has 2nd most centuries(71) in international cricket and only behind Sachin Tendulkar(100) and tied with Ricky Ponting(71).
